@@ -4,4 +4,4 @@
 
 Please dont blatantly colourpick my ponies, as i spend a long time creating them😓😓😓light inspo is okay
 
-![](https://komarev.com/ghpvc/?username=gracebyguillotine&label=Page+Views&color=blue) 
+![](https://komarev.com/ghpvc/?username=gracebyguillotine&label=☥&color=blue) 
